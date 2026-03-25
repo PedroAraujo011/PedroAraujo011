@@ -1,6 +1,6 @@
 ## Hi 👋
 
-👋 Olá, eu sou o Pedro Henrique
+🎓 Estudante | 💻 Técnico em Informática em formação | 🌎 Americana - SP
 
 🎓 Estudante da escola Heitor Penteado (Americana)
 💻 Estudante de Tecnologia da Informação pelo Senac
