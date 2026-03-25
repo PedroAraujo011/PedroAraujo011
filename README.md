@@ -10,5 +10,5 @@
 
 📂 Aqui você vai encontrar alguns dos meus projetos, estudos e minha evolução como futuro profissional de tecnologia.
 
-✨ Obrigado por visitar meu perfil!
+ Obrigado por visitar meu perfil!
 -->
