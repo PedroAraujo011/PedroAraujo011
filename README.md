@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi 👋
 
 👋 Olá, eu sou o Pedro Henrique
 
